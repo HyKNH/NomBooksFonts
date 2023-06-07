@@ -1,6 +1,6 @@
-# 📚 Chữ Nôm books
+# 📚 Chữ Nôm books and fonts
 
-Just a small collection of chữ Nôm books that I want to keep here, not all books in my collection are here due to copyright.
+Just a small collection of chữ Nôm books and fonts that I want to keep here, not all books in my collection are here due to copyright.
  
 ## 🇻🇳 Collection
 
